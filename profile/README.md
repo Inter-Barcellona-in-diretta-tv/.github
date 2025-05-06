@@ -2,6 +2,10 @@ Inter-Barcellona in campo alle 21, la semifinale di Champions in diretta
 
 Adnkronos) – Si gioca oggi, martedì 6 maggio, Inter-Barcellona. La semifinale di ritorno di Champions League a San Siro arriva dopo il pirotecnico 3-3 dell’andata allo Stadio Olimpico Lluís Companys, fissato dalle reti di Thuram, Dumfries (doppietta), Yamal, Ferran Torres e dall’autogol di Sommer. Calcio d’inizio alle 21.  
 
+✅🔰STREAMING🔴✅👉 [https://worldsportshd.com/Inter-Barcellona-in-diretta-streaming/](https://worldsportshd.com/Inter-Barcellona-in-diretta-streaming/)
+
+ ✅🔰STREAMING🔴✅👉 [https://worldsportshd.com/Inter-Barcellona-in-diretta-streaming/](https://worldsportshd.com/Inter-Barcellona-in-diretta-streaming/)
+
  
 
 Nell’altra semifinale, che si giocherà domani sera alle 21, in campo Psg e Arsenal al Parco dei Principi. Successo francese all’andata (0-1 all’Emirates Stadium) 
